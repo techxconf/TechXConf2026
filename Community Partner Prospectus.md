@@ -35,7 +35,7 @@ For more details, visit our website https://techxconf.com
 - Provide post-event feedback and insights to the Event organizers to improve future events.
 
 ## Your entitlements
-- Get to promote your community during the TechXConf 2025 event.
+- Get to promote your community during the TechXConf 2026 event.
   - Your community logo on the event website
   - Community partner announcement from TechXConf social media handles (Twitter, LinkedIn & Meta)
     
