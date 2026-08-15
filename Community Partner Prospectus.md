@@ -1,18 +1,18 @@
 ## Introduction
 
-We invite you to become a community partner of  TechXConf, Asia's Largest AI & Cloud Conference 2025 with a special focus on AI services, on November 01, 2025 at Chennai Trade Centre, Chennai, Tamil Nadu.
+We invite you to become a community partner of  TechXConf, Asia's Largest AI, Cloud & Data Conference 2026, with a special focus on AI services, on October 24, 2026, at IIT Research Park, Chennai, Tamil Nadu.
 
-## About TechXConf 2025 Event
+## About TechXConf 2026 Event
 
 TechXConf is a global phenomenon that unites visionary speakers, pioneering technologies, and a vibrant community of tech enthusiasts. Our mission is to explore, educate, and envision the future of technology through two dynamic domains: Cloud Computing and Generative AI.
 
-Across the two days of immersive technology learning, attendees will learn from hundreds of educational sessions, dozens of real-life case studies, and panel discussions, delivered by 60+ world-class experts worldwide.
+Across the two days of immersive technology learning, attendees will learn from hundreds of educational sessions, dozens of real-life case studies, and panel discussions, delivered by 30+ world-class experts worldwide.
 
 For more details, visit our website https://techxconf.com
 
 ## Benefits of Becoming a Community Partner
 
-**Increased visibility:** Partnering with TechXConf 2025 event can help raise your profile in the community and increase your visibility among potential customers or clients.
+**Increased visibility:** Partnering with the TechXConf 2026 event can help raise your profile in the community and increase your visibility among potential customers or clients.
 
 **Marketing opportunities:** You will have the opportunity to showcase your community to our supporters and target audience, and potentially gain new community members and followers.
 
@@ -22,12 +22,12 @@ For more details, visit our website https://techxconf.com
 - Promote the event on your community's website, social media handles, and other marketing materials.
 - Promote the event through your network and contacts.
 - Promote the event in your meetups, webinars, etc.
-- Min. 2 posts from your social media handles (Twitter and LinkedIn). The content of the posts will be shared by the TechXConf Team.
-- Min. 2 emails to your community members. The content of the email will be shared by the TechXConf Team.
+- Min. 4 posts from your social media handles (Twitter and LinkedIn). The content of the posts will be shared by the TechXConf Team.
+- Min. 4 emails to your community members. The content of the email will be shared by the TechXConf Team.
 - Sell tickets to your community members.
 
 **Optional:**
-- Refer min. 3 sponsors for the event.
+- Refer min. 2 sponsors for the event.
 - Provide volunteers to assist with the organization and management of the event.
 - Provide feedback and suggestions for improving the event and its content.
 - Help identify potential speakers or presenters for the event.
